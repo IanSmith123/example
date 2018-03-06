@@ -1,4 +1,5 @@
 # First Chapter
 
-GitBook allows you to organize your book into chapters, each chapter is stored in a separate file like this one.
-66666666666666666666666666666666666666
+GitBook allows you to organize your b
+
+![](http://oqyjccf1n.bkt.clouddn.com/20180304-183753.png)
