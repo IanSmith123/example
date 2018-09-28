@@ -1,6 +1,9 @@
 # geeeeeeeek   
-scumaker 
-\
+爱国敬业诚信友善
+
+富强民主文明和谐
+
+自由平等公正法治
 
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSHtp9PxRLZryvQ2Vo2gEqv6h9KlOLNFLUFHWP540mWQ2azhuvy)
+![](http://www.smcz.gov.cn/pc/201705/W020170524628878462644.jpg)
